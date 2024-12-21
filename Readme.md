@@ -1,3 +1,4 @@
+![image](https://github.com/user-attachments/assets/03fe95ed-b999-40c7-a6e2-d6c1b473aba6)
 
 # Rewards for Building and Deploying Small Scale Projects
 
